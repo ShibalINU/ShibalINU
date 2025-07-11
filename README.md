@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @ShibalINU
 - 📫 How to reach me @ryly.hj on instagram
 
 <!---
